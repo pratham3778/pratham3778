@@ -11,7 +11,7 @@
 
 - ⚡ **Whatever I do, I do with perfection, Take work ethics very seriously, Loves to connect with people**
   
-- 📄 [My CV]([https://drive.google.com/file/d/1PPXgIYmONmOLtWcrllv_F7JYs5Dsp9X_/view?usp=drive_link](https://drive.google.com/file/d/1Fn-j5rHSnoQZNfABvfF-_CQqIvg6mXqx/view?usp=drive_link))
+- 📄 [My CV]([https://drive.google.com/file/d/1PPXgIYmONmOLtWcrllv_F7JYs5Dsp9X_/view?usp=drive_link])
 
 **I am open to**:
 
